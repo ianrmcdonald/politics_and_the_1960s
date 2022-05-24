@@ -1,2 +1,2 @@
-# politics_and_the_1960s
+# Politics and the 1960's
 Material for the Politics in the 1960's Course
